@@ -1,4 +1,4 @@
-# 
+# Top Adobe Acrobat Pro ferramentas para Mac OS | Profissional Adobe Acrobat Pro ferramentas para PC Windows. Com histórico de versões e cálculo de impostos — otimizado para máximo desempenho em cada plataforma.
 
 
 
